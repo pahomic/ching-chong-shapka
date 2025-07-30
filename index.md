@@ -78,45 +78,45 @@ BAIC - какой-то очередной ноунейм, земля пухом 
 
 
 По переписи в предыдущих тредах составили список, на каких чингчонгах ездят аноны. Задавайте ответы:
-Changan CS55 Plus
-Changan CS95
-Changan EADOplus
-Changan UNI-V
-Chery Arrizo 8
-Chery Tiggo 2 Pro
-Chery Tiggo 4 Pro
-Chery Tiggo 7 Pro Max
-Chery Tiggo 8 Pro
-Chery Tiggo 8 Pro Max - отзыв https://clck. ru/3G8wTe
-Dongfeng Aeolus Shine Max
-Dongfeng DFSK ix5
-Exeed TXL
-FAW Bestune T55
-Geely Atlas Pro
-Geely Atlas II
-Geely Cityray
-Geely Coolray - отзыв https://clck. ru/3G4wQb
-Geely Coolray New
-Geely Emgrand EC7
-Geely Emgrand SS11
-Geely Monjaro
-Geely Preface
-Geely Tugella
-Haval Dargo
-Haval F7
-Haval F7 2nd gen
-Haval F7x
-Haval H3
-Haval H5 1st gen
-Haval Jolion
-Haval M6
-JAC J7 - отзыв https://clck. ru/3G8umD
-Jaecoo J7
-Jaecoo J8
-Kaiyi X3
-Omoda C5
-Omoda S5 - отзыв https://clck. ru/3GpgDj
-Tank 300
-Tank 500
-Voyah Free
-Москвич 3
+- Changan CS55 Plus
+- Changan CS95
+- Changan EADOplus
+- Changan UNI-V
+- Chery Arrizo 8
+- Chery Tiggo 2 Pro
+- Chery Tiggo 4 Pro
+- Chery Tiggo 7 Pro Max
+- Chery Tiggo 8 Pro
+- Chery Tiggo 8 Pro Max - отзыв https://clck. ru/3G8wTe
+- Dongfeng Aeolus Shine Max
+- Dongfeng DFSK ix5
+- Exeed TXL
+- FAW Bestune T55
+- Geely Atlas Pro
+- Geely Atlas II
+- Geely Cityray
+- Geely Coolray - отзыв https://clck. ru/3G4wQb
+- Geely Coolray New
+- Geely Emgrand EC7
+- Geely Emgrand SS11
+- Geely Monjaro
+- Geely Preface
+- Geely Tugella
+- Haval Dargo
+- Haval F7
+- Haval F7 2nd gen
+- Haval F7x
+- Haval H3
+- Haval H5 1st gen
+- Haval Jolion
+- Haval M6
+- JAC J7 - отзыв https://clck. ru/3G8umD
+- Jaecoo J7
+- Jaecoo J8
+- Kaiyi X3
+- Omoda C5
+- Omoda S5 - отзыв https://clck. ru/3GpgDj
+- Tank 300
+- Tank 500
+- Voyah Free
+- Москвич 3
