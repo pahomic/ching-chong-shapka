@@ -81,6 +81,7 @@ BAIC - какой-то очередной ноунейм, земля пухом 
 - Changan CS55 Plus
 - Changan CS95
 - Changan EADOplus
+- Changan UNI-S
 - Changan UNI-V
 - Chery Arrizo 8
 - Chery Tiggo 2 Pro
@@ -107,9 +108,11 @@ BAIC - какой-то очередной ноунейм, земля пухом 
 - Haval F7 2nd gen
 - Haval F7x
 - Haval H3
+- Haval H5
 - Haval H5 1st gen
 - Haval Jolion
 - Haval M6
+- Hongqi HS5
 - JAC J7 - отзыв https://clck. ru/3G8umD
 - Jaecoo J7
 - Jaecoo J8
