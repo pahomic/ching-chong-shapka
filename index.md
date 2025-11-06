@@ -91,6 +91,7 @@ BAIC - какой-то очередной ноунейм, земля пухом 
 - Chery Tiggo 8 Pro Max - отзыв https://clck. ru/3G8wTe
 - Dongfeng Aeolus Shine Max
 - Dongfeng DFSK ix5
+- Evolute i-Space
 - Exeed TXL
 - FAW Bestune T55
 - Geely Atlas Pro
