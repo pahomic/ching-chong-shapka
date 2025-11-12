@@ -118,6 +118,7 @@ BAIC - какой-то очередной ноунейм, земля пухом 
 - Jaecoo J7
 - Jaecoo J8
 - Kaiyi X3
+- Lixiang L7
 - Omoda C5
 - Omoda S5 - отзыв https://clck. ru/3GpgDj
 - Tank 300
